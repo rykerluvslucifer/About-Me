@@ -12,7 +12,7 @@ Genderfluid-Transgender-Caedsexual
 Soldierboykssr on TikTok and Jasoncarver12 On Discord(˵ ¬ᴗ¬˵) 
 ADHD-PTSD 
 Recovering from depression( ¬⩊¬) 
-DNI LIST: Under 14, darkshippers,Proshippers,homophobics,transphobics, M*sha stans,Lucifer doubles
+DNI LIST: Under 14, darkshippers,Proshippers,homophobics,transphobics, M*sha stans,Lucifer antis
 
 Fandoms- Supernatural, The boys, Fantastic 4, Blue lock, Dandys World, Forsaken, Skull Girls, Creep, Stranger Things, Brawl Stars, Crk, Stray Dogs
 8:11 Game, Bad Things, Genshin Impact, Guilty Gear, Death Note, Die of Death, Hazbin Hotel, Helluva boss, Demon slayer, Danganropanpa, The last guest, Alien Stage, Backrooms, Tadc, South Park, Eddsworld, One Wheat Mark, Deltarune, Omori, Beetles, Ddlc, Metal Family, Sally Face,
